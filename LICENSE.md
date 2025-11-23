@@ -1,0 +1,1 @@
+información anout stardom
